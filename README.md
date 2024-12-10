@@ -6,7 +6,7 @@
 
 Game này được thiết kế để thu hút người chơi ở mọi lứa tuổi, đặc biệt là các bạn trẻ yêu thích trò chơi thế giới mở và sáng tạo. Phiên bản di động của Minecraft mang trải nghiệm quen thuộc từ máy tính đến thiết bị Android, giúp bạn dễ dàng chơi mọi lúc, mọi nơi. Với chế độ chơi nhiều người, bạn có thể cùng bạn bè hoặc những người chơi khác trên khắp thế giới tham gia.
 
-**>Tải xuống:** 👍 https://modhello.com/minecraft/
+**>Download:** 👍 https://modhello.com/minecraft/
 
 ### Tính năng của Minecraft APK
 
